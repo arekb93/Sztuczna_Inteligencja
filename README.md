@@ -1,2 +1,1 @@
-# Sztuczna_Inteligencja
-Nr. indeksu 6109
+# Nr. indeksu 6109
