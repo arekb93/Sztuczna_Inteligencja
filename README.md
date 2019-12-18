@@ -1,1 +1,1 @@
-# Nr. indeksu 6109
+# Nr indeksu 6109
